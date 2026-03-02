@@ -1,2 +1,8 @@
 # chat
 chat with your friends
+
+
+
+
+https://github.com/user-attachments/assets/828416c1-ff09-404d-97cb-77bd3f1d5474
+
